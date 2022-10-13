@@ -6,4 +6,4 @@
 - 
 - 🌱 I’m currently studying JAVA by the program entra21.
 - 🔭 I’m currently unemployed.
-- 📫 How to reach me by my Linkedin: Guilherme Henrique Minuzzo or Instagram: @guizn.047
+- 📫 How to reach me by my Linkedin: Guilherme Henrique Minuzzo or Instagram: @guiminuzzoo
